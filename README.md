@@ -1,2 +1,5 @@
 # mockiavellian
-I don't yet but it's going to be good.
+
+_adjective_
+
+cunning, scheming, and unscrupulous, especially in mocking.
